@@ -8,7 +8,7 @@ Law is merely the "written rules" of an organization, and is usually enforced vi
 However, at the end of the day, words are not inherently self-enforcing.  They need to be interpreted by individuals and actually put into practice through the behaviors of those individuals.
 As a result, culture trumps law.  
 
-That said, law (the written word) can play a significant role in the shaping of culture and through that influence can result in real change on the ground.  This document is intended to be used in that way.  When our actions fail to live align with our words, that should give us a hint that it is time to either a) change our actions or b) revise our "laws."
+That said, law (the written word) can play a significant role in the shaping of culture and through that influence can result in real change on the ground.  This document is intended to be used in that way.  When our actions fail to align with our words, that should give us a hint that it is time to either a) change our actions or b) revise our "laws."
 
 This is a living document.  
 
